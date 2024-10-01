@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @gofaonemotsemme
+- 👀 I’m interested in crafting visually appealing websites.
+- 🌱 I’m currently learning Microsoft Azure Fundamentals
+- 💞️ I’m looking to collaborate on projects in correlation with the creative industry
+- 📫 How to reach me LinkedIn: Gofaone Motsemme | Instagram: @literallygofaone
+- 😄 Pronouns: any pronouns
+- ⚡ Fun fact: i love astrology
